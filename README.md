@@ -1,4 +1,4 @@
-[See live Preview](https://p6njlswvztpi4zhyqzcnmq-on.drv.tw/Dip%20vachhani/Index.html)
+[See live Preview](dipvachhani.ml)
 
 # Resume-Template
 
