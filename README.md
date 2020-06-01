@@ -1,4 +1,4 @@
-[See live Preview](http://dipvachhani.ml/)
+[See live Preview](http://dipvachhani.gq/)
 
 # Resume-Template
 
